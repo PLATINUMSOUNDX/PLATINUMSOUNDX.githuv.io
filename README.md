@@ -1,2 +1,2 @@
-# PLATINUMSOUNDX.githuv.io
+# PLATINUMSOUNDX.github.io
 yt nh
